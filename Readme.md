@@ -1,0 +1,1 @@
+### %USERPROFILE%\Saved Games\CD Projekt Red\Cyberpunk 2077
